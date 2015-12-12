@@ -9,7 +9,7 @@ There are homeless people actively trying to get on their feet. Their biggest he
 
 ### How do I get involved?
 
-  * You can improve this document. Just email [mailto:edward@edwardhotchkiss.com](edward@edwardhotchkiss.com) for access. This can facilitate outside investors. Have a great holiday everyone regardless!
+  * You can improve this document. Just email [edward@edwardhotchkiss.com](mailto:edward@edwardhotchkiss.com) for access. This can facilitate outside investors. Have a great holiday everyone regardless!
 
   
 ### Costs?
